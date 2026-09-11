@@ -1,4 +1,4 @@
-# Mi--portafolio--digital
+# Mi-portafolio-digital
 
 # Deiry Sanabria
 
